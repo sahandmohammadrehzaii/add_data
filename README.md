@@ -1,1 +1,1 @@
-``in the name of go``
+``in the name of god``
